@@ -1,6 +1,7 @@
 # hi, i'm Szvy
 
 13 year old frontend web developer
+🏳️‍⚧️girl ;3
 
 ## about me
 
