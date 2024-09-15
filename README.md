@@ -1,8 +1,7 @@
 # hi, i'm Szvy
 
-13 year old frontend web developer.
-also a trans girl.
-;3
+13 year old frontend web developer. <br>
+also 🏳️‍⚧️ mtf.
 
 ## about me
 
